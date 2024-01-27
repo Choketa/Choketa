@@ -1,4 +1,11 @@
 ### Hello.
+## Hi
 
-I am Choketa/Chocketa. Dev. Yes.
+🌍 Currently I'm real
+
+🌱 Creator of CrazyEggs and Developer at LumenMC
+
+🎮 Blablabla
+
+⚡ Fun Fact: I'm crazy I need help now 😋😋
   
